@@ -23,8 +23,8 @@ A promotional email marketing campaign showcasing H&M's latest seasonal fashion 
 
 Feel free to explore my projects and reach out if you'd like to collaborate!
 
-- 📧 Email: [your-email@example.com]
-- 🔗 LinkedIn: [your-linkedin-url]
+- 📧 Email: Wiggins.Mykel@yahoo.com
+- 🔗 LinkedIn: linkedin.com/in/mykelwiggins
 - 🌐 Personal Website: [your-website-url]
 
 ---
